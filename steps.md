@@ -6,3 +6,5 @@
 - Utiliser 2 cuillères à soupe pour former des petits tas espacés
 - Enfourner pour 10 minutes de cuisson
 - Dresser les cookies dans un plat de service
+
+Bon appétit !
