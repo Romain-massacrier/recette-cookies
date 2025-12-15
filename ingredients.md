@@ -1,0 +1,8 @@
+- 85 g de beurre mou
+- 1 œuf
+- 85 g de sucre
+- 1 sachet de sucre vanillé
+- 150 g de farine
+- 100 g de chocolat noir
+- 1 cuillère à café de sel
+- 1 cuillère à café de levure chimique
